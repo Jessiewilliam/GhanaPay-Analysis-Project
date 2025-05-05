@@ -76,7 +76,7 @@ As GhanaPay scales, unlocking insights from transaction data is critical to:
 
 Jessica William
 Data Analyst | Business Intelligence Enthusiast
-\[(http://www.linkedin.com/in/jessica-william-9a3141225) | \[williamjessie16@gmail,com]
+\[(http://www.linkedin.com/in/jessica-william-9a3141225) | \[williamjessie16@gmail.com]
 
 ---
 
